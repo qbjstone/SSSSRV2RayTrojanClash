@@ -9,20 +9,20 @@
 
 https://fastlink.ws/auth/register?code=je8N
 
-2）全中转IPLC v2ray/trojan大机场,节点包括，港台美日新 可以白嫖 10G 流量不限速
+2）全中转IPLC v2ray/trojan大机场,节点包括，港台美日新 可以白嫖 10G 流量不限速。
 
 https://jisumax.com/#/register?code=C5QQIMd5
 
 
-3）350+节点的全中转大机场，特殊时期稳定且高速，月最低9.9
+3）350+节点的全中转大机场，特殊时期稳定且高速，月最低9.9。
 
 https://suying555.net/auth/register?code=lPWj
 
-4）150+节点的全中转大机场，特殊时期稳定且高速，月最低9.9
+4）150+节点的全中转大机场，特殊时期稳定且高速，月最低9.9。
 
 https://youyun555.net/auth/register?code=fDPg
 
-5）全IPLC  3GBps 实打实流量机场
+5）全IPLC  3GBps 实打实流量机场。
 
 https://bywave.io/aff.php?aff=5106
 
