@@ -23,16 +23,6 @@ https://suying555.net/auth/register?code=lPWj
 https://youyun555.net/auth/register?code=fDPg
 
 
-5）全中转IPLC v2ray/trojan大机场,节点包括，港台美日新 可以白嫖 10G 流量不限速。
-
-https://jisumax.com/#/register?code=C5QQIMd5
-
-
-6)全SS节点，节点包括港/台/美/日/新/菲律宾/韩国/俄罗斯，解锁Netflix,HBO,Hulu,动画疯，BiliBili,TVB流媒体服务。
-
-https://www.bgpnode.com/auth/register?code=NpPQ
-
-
 
 ssr/v2ray/trojan全协议支持，Android/ios/mac/windows/linux/路由器，全系统支持，每天签到送流量，白嫖也不错。
 任何问题都可以电报群解答
