@@ -32,11 +32,14 @@ https://www.mielink.cc/register?aff=1GTFR6
 
 
 
-6）全中转大机场，100+节点，包括港、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，4K不卡，8K流畅。 流媒体全解锁，并且提供Netflix,prohub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
+6）全中转大机场，100+节点，包括港、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，4K不卡，8K流畅。 流媒体全解锁，并且提供Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。月最低8块。
 
 https://maoxiong.cloud/auth/register?code=PnFg
 
 
+7)全大陆中转SSR大机场，原生IP，节点包括港，台，美，日，新，俄，泰国，加拿大，印尼，印度，以色列，法国，澳大利亚，澳门，英国，荷兰， 菲律宾，越南，阿根廷，韩国，马来西亚，相当于周游世界了。特殊时期高速稳定，流媒体解锁，倍率低不限速。
+
+https://taggood-2.xyz/auth/register?code=Kz2o
 
 
 ssr/v2ray/trojan全协议支持，Android/ios/mac/windows/linux/路由器，全系统支持，每天签到送流量，白嫖也不错。
