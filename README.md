@@ -25,7 +25,7 @@ https://dashboard.coco355.com/user/register?code=nRFw
 
 6）无视特殊时期封禁和干扰，稳定奔放，晚高峰8K秒开，节点包括，港，台，美，日，新，韩，三网优化。提供Netflix共享，现在注册，所有套餐7折优惠，月付最低 2 块，免费节点无需付费每天签到即可白嫖。
 
-https://catcloud.fun/auth/register?code=o5ha
+https://catcloud.shop/auth/register?code=o5ha
 
 7）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
 
@@ -46,6 +46,18 @@ https://suying222.net/auth/register?code=lPWj
 11）独家支持Torjan,IPLC/IEPL,原生IP，包括 港/台/美/日/新/韩国/德国/澳大利亚/英国/俄罗斯/土耳其/印度/巴西，提供高速稳定中继服务，AEAD算法保证安全。 注册之后即送1G白漂，验证手机号（接码平台号也可）就送5G白漂三天！！！ 含多条回国线路，解锁国内流媒体，直播，音乐，企业也可定制。还可领套餐时长最高365天，或者100元账户余额红包。 提供youtube,Netflix，Pornhub，HBONOW，Hulu美区，Hulu日区等网站的最高等级账号白漂。
 
 https://www.mielink.com/register?aff=1GTFR6
+
+12）高质量V2ray机场,低至11.8元/月，秒开4K 稳定油管8K，，节点包括港，台，美，日，新加坡，俄罗斯，土耳其，以色列，荷兰，阿根廷等，解锁Netflix/HBO/Hulu等流媒体。
+
+https://tigercloud.club/#/register?code=OLPvTSuu
+
+13）高质量网络线路，节点包括，港，台，美，日，新加坡，俄罗斯，加拿大，印度，意大利，德国，土耳其，英国，荷兰等，最低 2块起。
+
+https://www.franxx.cloud/auth/register?code=rF9r
+
+14）高质量大型机场，稳定高速，原生IP，解锁流媒体。最低 8块钱。
+
+https://dukou.icu/user/register?code=ekdx
 
 
 
