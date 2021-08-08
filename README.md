@@ -47,15 +47,15 @@ https://fastlink.ws/auth/register?code=je8N
 
 http://mielink-invite.com/register?aff=1GTFR6
 
-12）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+12）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://jike138.net/auth/register?code=PoNd
 
-13）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+13）150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://youyun222.net/auth/register?code=fDPg
 
-14）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+14）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://suying222.net/auth/register?code=lPWj
 
