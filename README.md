@@ -47,7 +47,7 @@ https://ss.mba/#/register?code=tRvFN2H5
 
 https://ivt.yuansu.app/mSu6LmgG
 
-6）多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
+5）多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
 https://bywave.art/aff.php?aff=5106
 
