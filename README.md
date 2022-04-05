@@ -45,7 +45,7 @@ https://fastlink-aff.com/auth/register?code=je8N
 
 3）多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
-https://bywave.art/aff.php?aff=5106
+https://byw.tv/aff.php?aff=5106
 
 4）全IPLC专线大机场，G口带宽，全部原生IP，节点包括，港，台，美，日，新加坡，韩，菲律宾，越南，泰国，印度，德国，法国，英国，阿根廷，流媒体全解锁。注册即可白嫖。免费试用。月最低5.99。
 
