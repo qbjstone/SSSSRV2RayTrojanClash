@@ -51,7 +51,7 @@ https://bit.ly/3uDY8lT
 https://bit.ly/3GJyTmW
 
 3）<b>[Miaona](https://bit.ly/3ugbftg)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转trojan协议，8K清晰不卡，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，韩国，泰国，柬埔寨，印度尼西亚，越南，俄罗斯，巴西，澳大利亚，法国，英国，印度，巴基斯坦，荷兰，以色列，菲律宾，加拿大，土耳其，阿根廷，爱沙尼亚 等，最低可至10元/月</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
 https://bit.ly/3ugbftg
 
