@@ -211,4 +211,4 @@ Trojan-QT5:
 https://github.com/charlieethan/Trojan-Qt5/releases
 
 Qv2ray：
-https://github.com/Qv2ray/Qv2ray/releases
+https://github.com/Qv2ray/Qv2ray/releases 
