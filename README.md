@@ -83,6 +83,8 @@
 6）<b>[Element](https://api.yuansu.uk/v1/guest/i/mSu6LmgG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆BGP中继线路，三网优化高端机场，SS协议加密传输，月最低 10 块钱，节点包括，港，台，日，新，美，德，英。流媒体解锁，稳定高速。根据时间段进行低倍率优惠，3:00 - 10:00 期间计算的流量将被降至 0.6 倍。10:00 - 14:00 期间计算的流量将被降至 0.8 倍。</p>
 
+👉 **国庆中秋专属优惠码，月付年付八折优惠码：20230927A，纯流量套餐七折优惠码：20230927B，有效期：即日起至10.5。**
+
 👉 https://bit.ly/3mzxklV
 
 7）<b>[抖云加速](https://douyun.vip/#/register?code=BwJyTE2t)</b>
